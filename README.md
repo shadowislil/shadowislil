@@ -1,12 +1,18 @@
-hi pls read this 
-When I play ponytown, I see people around me 
-who use my shading style without permission,
-or even copy and use my anxiety and
-party noob joke skins. This is really
-bothering me, please stop I always give you 
-permission to take inspo, but without permission
-it really annoys me I'm not saying that
-my skin is more beautiful and interesting than
-anyone else's, but anyway, anyone in my place
-feels this bad feeling. Please don't be shy
-to ask questions for inspo.
+hello fellow
+call me yegs/waffle lolol ..more in sth area .artist on tumblr:yeges
+:3333
+
+
+dni ships:
+metonic:EWWWWWWWWWWWWWWWWW who the shut 
+created this i hate this ewwewew dni a lot its slef love
+
+tailsamy:.....i thinj they are just teammates help
+
+mariadow:SHIPPING THE SIBLINGS?CRAZY
+
+knuxamy:they are sibling also help
+
+sonilver/shadilver:its crazy asf pls if u ship this dont intract me ever again
+
+SHIPS:KNUXOUGE AND METAMYMEYAMY METAMY (I LOVE A LOT OF SHIPS THO BUT I JUST WRITED MY BESTIES :3>)
